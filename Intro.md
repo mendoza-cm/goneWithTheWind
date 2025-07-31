@@ -30,7 +30,7 @@ Melanie Wilkes:
  
 <li>
 Rhett Butler:
-	Scam artist. His line at the end of the book is, "My dear, I don’t give a damn”— not"Frankly, my dear, I don't give a damn", as 
+	Scam artist. His line at the end of the book is, "My dear, I don’t give a damn”— not "Frankly, my dear, I don't give a damn", as 
 	the movie portrays. Another opportunist. Rhett is about thirty-five when he is introduced in the novel and forty-seven at the end.
 </li>
 
