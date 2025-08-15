@@ -56,7 +56,7 @@ will post about late blogs on my README file in the link above.
 
 For the record, this is a re-read. I first read Gone With the Wind two years ago and wanted to join a book club for my second read—a definite
 must. The story’s rich with history, passion, and uncomfortable truths. But apparently, I was delusional with my thinking and forgot to consider my 
-natural inclination to stay away from people--I'm sure the drinking and smoking doesn't help. So, email me at mendozachristina1729@gmail.com if you want to share your thoughts. I’d
+natural inclination to stay away from people—I'm sure the drinking and smoking doesn't help. So, email me at mendozachristina1729@gmail.com if you want to share your thoughts. I’d
 like to add a comment section eventually and this way, I can keep the bad habits with the option of adding a few more.
 
 In short — I bit off more than I could chew, but the gristle's tasty—mighty savory. So, the newlyweds take off and Scarlett starts scheming. Tara is her life; 
@@ -73,5 +73,5 @@ but she won’t let her go alone. If Tara is to be saved, she’ll keep Scarlett
 So she helps Scarlett tear down the green parlor drapes and together they make a gown for the big 
 performance. Suellen lends her Irish-lace collar, Carreen her shoes. Ashley could only sit in admiration. 
 
-Next stop: Atlanta—where she’d wager everything on the one man who could save her, or ruin her completely.    
+Next stop: Atlanta—where Scarlett will wager everything on the one man who could save her, or ruin her completely.    
 
