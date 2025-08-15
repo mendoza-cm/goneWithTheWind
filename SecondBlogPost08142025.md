@@ -6,8 +6,7 @@ humiliating moment. He knew she was no more a lady than he was a gentleman—and
 So began their saga.
 
 Gerald had warned her—like should marry like if a marriage is to survive. Naturally, she ignored him. And the instant it backfired,
-Rhett enters. Rhett matches her appetite for life—and he's only twice her age,
-too. Scarlett's class, education, and charm had men dangling like ripe fruit, ready to fall if she so much as glanced
+Rhett enters. Rhett matches her appetite for life—and he's only twice her age. Scarlett's class, education, and charm had men dangling like ripe fruit, ready to fall if she so much as glanced
 their way. Rhett, with his male privilege—money and whiteness—had the bankroll and connections to buy his way out of anything. Both knew
 how to work a room, bend a rule, and make the outcome look like fate. But that kind of hustle only works if the table’s already tilted in
 your favor. Mammy or Pork couldn’t dream of scheming; not without being branded “uppity”— a death sentence in the South. Rhett and Scarlett could
