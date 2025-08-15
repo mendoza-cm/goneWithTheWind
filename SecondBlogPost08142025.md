@@ -2,7 +2,7 @@ Scarlett O’Hara married her first husband, Charles Hamilton, at sixteen—pure
 she loved his cousin, Ashley Wilkes. After cornering Ashley in what she thought was an empty library at the Wilkes family barbecue—and
 being politely rejected—she comes face-to-face with Rhett Butler. Not exactly a meet-and-greet: Rhett had been there the entire time she was
 confessing her love, demanding Ashley choose her. He heard her make a fool of herself, heard Ashley turn her down, and enjoyed every
-humiliating moment. He knew she was no more a lady than he was a gentleman—and he wasn’t shy about making sure she, too, knew.
+humiliating moment. He knew she was no more a lady than he was a gentleman—and he wasn’t shy about about telling her.
 So began their saga.
 
 Gerald had warned her—like should marry like if a marriage is to survive. Naturally, she ignored him. And the instant it backfired,
