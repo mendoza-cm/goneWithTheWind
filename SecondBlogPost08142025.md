@@ -49,7 +49,7 @@ name to fight dirty—letting Emmie believe Ellen's charity was just pity.
 I know, I know—I said in my first blog this would be weekly. That was a lie. My anxiety got the better of me, and all the themes got a
 little too overwhelming. Chapter 32 marks a turning point in the novel—Scarlett is transforming, pushing her limits, testing what she’s willing
 to do—and it pushed my limits too. I’ll post more on my method and how I eventually processed this chapter in the README on my project site
-(update coming in a few days: [View README](README.MD)
+(update coming in a few days: [View README](README.md)
 ). I’m still getting used to writing again; shaking all the rust free. I will aim to keep my weekly deadline and in the future
 will post about late blogs on my README file in the link above.
 
