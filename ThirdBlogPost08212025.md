@@ -24,5 +24,5 @@ In Chapter 32, Mammy is right there again—helping Scarlett cut up the green ve
 "borrowing" money, but Mammy sure as hell isn't going to let Scarlett go to Atlanta alone. Ironically, Scarlett tries to dissuade her through flattery, "Mammy you're so sweet to 
 want to go with me, but how on earth would the folks here get on without you? You know you just about run Tara." Mammy isn't amused; she won't fight Scarlett anymore—Mammy steps aside and lets her lead.
 
-I want to spend more time on Mammy, but must end the blog early. Next week we will continue with Chapter 33, but then take another *Detour* the following week to finish discussing Mammy before moving on 
-to Pork, Dilcey, and Prissy: the *other* Tara family.
+Mammy deserves more ink, but she's left her mark. Next week: the chaos of Chapter 33. Then, we’ll take another **Detour** to finish what Mammy started—pulling Pork, Dilcey, and Prissy, 
+out of the margins and onto center stage.
